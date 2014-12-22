@@ -36,52 +36,34 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A notable and marueilous epistle of the famous doctour, Matthewe Gribalde, Professor of the lawe, in
+
+1. ❧Ihon Caluin to the christian Reader.
+
+1. An Epigram of the terrible example of one Francis Spera an Italian, of whom this booke is compiled.
+
 #####Body#####
 
-1. Synne.
+1. A greate and marueilous example of the diuine iudgement, hath appeared in theſe our latter daies. Wee dooe witneſſe that,•. Ihon. 2. whiche wee haue heard with our eares, and ſeen with our Eyes.
 
-    _ ¶A medicine againſt the feare of Death.
+1. A godly prayer againſt deſperation.
+I. PETER V.Be ſober and watch, for your aduerſarie the Deuill as a roaring Lion: walketh about, ſeek
+1. The Preface.
 
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
+1. A preſeruatiue againſt deſperation.
 
-    _ ¶ A medicine againſt the feare of Helle and damnation.
-FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou ha
-1. ¶A medicine againſt ſynne, vexyng and troublyng our conſcience
+    _ Synne.
 
-    _ ¶A medicine againſt the feare of Death.
+    _ ¶A medicine againſt ſynne, vexyng and troublyng our conſcience
+And that thou maieſt be aſſured thereof g〈…〉〈…〉ell reader, with a full perſwaſion of faithe, I haue And that thou maieſt be aſſured thereof gē•ell reader, with a full perſwaſion of faithe, I haue not
+    _ Death.
 
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
+      * ¶A medicine againſt the feare of Death.
 
-    _ ¶ A medicine againſt the feare of Helle and damnation.
-FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou haAnd that thou maieſt be aſſured thereof g〈…〉〈…〉ell reader, with a full perſwaſion of faithe, I haue 
-    _ ¶A medicine againſt the feare of Death.
+      * 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
 
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
+    _ Hell and damnation.
 
-    _ ¶ A medicine againſt the feare of Helle and damnation.
-FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou haAnd that thou maieſt be aſſured thereof gē•ell reader, with a full perſwaſion of faithe, I haue not
-    _ ¶A medicine againſt the feare of Death.
-
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
-
-    _ ¶ A medicine againſt the feare of Helle and damnation.
-FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou ha
-1. Death.
-
-    _ ¶A medicine againſt the feare of Death.
-
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
-
-    _ ¶ A medicine againſt the feare of Helle and damnation.
-FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou ha
-1. Hell and damnation.
-
-    _ ¶A medicine againſt the feare of Death.
-
-    _ 〈…〉 Here after followeth certaine places of ſcripture, witneſſing the reſurrectiō of the ded, 〈…〉 accordyng to the articles of our faith, wherein we ſaie, we beleue that this fleſhe ſhall riſe againe.
-
-    _ ¶ A medicine againſt the feare of Helle and damnation.
+      * ¶ A medicine againſt the feare of Helle and damnation.
 FIrſt he was tempted with ſynne, when being hanged betwixt twoo theeues as a notable and hainous ſynCHriſt was tēpted alſo with dea〈…〉Math. ij. when it was ſayde vnto him, 〈…〉 hath ſaued other, but hTHirdlie, Chriſte was te〈…〉 with helle, or euerlaſtyng 〈…〉 nation, when it was ſaied 〈…〉 hym, he hatAFter this ſort, if we (labouring wreſtyng, and ſtriuyng with our imhecilitie, accuſing before God, O Moſte mercifull Father, I cōmende into thy holie handes my ſpirite, yea, thy ſpirite, for thou ha
 **Types of content**
 
